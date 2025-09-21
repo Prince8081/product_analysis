@@ -66,4 +66,4 @@ The goal was to uncover key insights such as **discount strategy, category perfo
 ---
 
 ## 📢 Connect with Me
-[LinkedIn](www.linkedin.com/in/prince212108)
+[LinkedIn](https://www.linkedin.com/posts/prince212108_productanalysispdf-activity-7375385896184991744-KFPM?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAAE44sIEBGH6xUxrSuZJLcVwcL0Bq8TCJi_I)
